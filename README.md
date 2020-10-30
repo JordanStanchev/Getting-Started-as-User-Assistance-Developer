@@ -7,5 +7,5 @@ This is the place where the students of Jordan Stanchev & JPDocu School for Tech
 
 It is allowed to edit the content in your own pages, preferably. 
 It is not allowed to delete somebody elses content. 
-In case you need more information you can get in touch with JPDocu via e-mail: jpdocuservices@gmail.com
-For more information, see https://jpdocu.teachable.com/.
+In case you need more information you can get in touch with JPDocu via e-mail: jordan.stanchev@jpdocu.com
+For more information, see www.jpdocu.com.
